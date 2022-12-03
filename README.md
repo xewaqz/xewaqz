@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @xewaqz
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning things..?
+- 💞️ I’m looking to collaborate on my projects.
+- 📫 How to reach me telegram, @xewaqz.
